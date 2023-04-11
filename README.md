@@ -1,4 +1,4 @@
-Nama Anggota Kwlompok 
+Nama Anggota Kelompok 
 
 Muhamad Armin           (22.11.5281)
 Rifly Ikhwantoro Hutomo (22.11.5290)
